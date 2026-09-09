@@ -32,7 +32,7 @@
 
 ### Day 1 (2027/02/09 週二)：抵達仙台 ➔ 輪王寺雪景 ➔ 仙台牛舌饗宴
 
-![日式庭園與三重塔雪景](https://images.unsplash.com/photo-1578632767115-351597cf2477?auto=format&fit=crop&w=1200&q=80)
+![日式枯山水庭園與三重塔真實雪景](https://images.unsplash.com/photo-1578632767115-351597cf2477?auto=format&fit=crop&w=1200&q=80)
 
 * **上午**：08:15 於桃園國際機場 T2 長榮櫃檯辦理報到，搭乘 10:15 出發之 BR118 班機飛往仙台。
 * **午餐**：機上享用長榮精緻航空餐點。
@@ -48,7 +48,7 @@
 
 ### Day 2 (2027/02/10 週三)：宮城藏王狐狸村 ➔ 藏王溫泉
 
-![雪地中換上豐厚冬毛的赤狐](https://images.unsplash.com/photo-1516934024742-b461fba47600?auto=format&fit=crop&w=1200&q=80)
+![雪地中換上豐厚冬毛的真實赤狐](https://images.unsplash.com/photo-1516934024742-b461fba47600?auto=format&fit=crop&w=1200&q=80)
 
 * **上午**：（啟用 JR Pass Day 1）搭乘新幹線前往白石藏王站，轉乘巴士前往 [宮城藏王狐狸村](http://zao-fox-village.com/)，近距離觀察雪地中百隻換上豐厚冬毛的狐狸。
 * **午餐**（白石名物溫麵推薦）：
@@ -64,7 +64,7 @@
 
 ### Day 3 (2027/02/11 週四)：藏王樹冰纜車 ➔ 銀山溫泉大正浪漫夜景
 
-![銀山溫泉木造旅館街冬日夜景](https://images.unsplash.com/photo-1528164344705-47542687990d?auto=format&fit=crop&w=1200&q=80)
+![銀山溫泉木造旅館街真實冬日夜景](https://images.unsplash.com/photo-1528164344705-47542687990d?auto=format&fit=crop&w=1200&q=80)
 
 * **上午**：搭乘 [藏王索道纜車](https://zaoropeway.co.jp/) 登上地藏山頂站，俯瞰被稱為「雪怪（Snow Monsters）」的壯麗**藏王樹冰**。
 * **午餐**（山形/纜車觀景美食推薦）：
@@ -80,7 +80,7 @@
 
 ### Day 4 (2027/02/12 週五)：山形 ➔ 會津若松（雪中鶴城與七日町老街）
 
-![會津若松鶴城天守閣雪景](https://images.unsplash.com/photo-1545569341-9eb8b30979d9?auto=format&fit=crop&w=1200&q=80)
+![會津若松鶴城天守閣真實雪景攝影](https://images.unsplash.com/photo-1545569341-9eb8b30979d9?auto=format&fit=crop&w=1200&q=80)
 
 * **上午**：搭乘 JR 仙山線與磐越西線前往福島縣歷史古城 [會津若松](https://www.aizuwakamatsu-kanko.com/)。
 * **午餐**（會津醬汁豬排飯推薦）：
@@ -96,7 +96,7 @@
 
 ### Day 5 (2027/02/13 週六)：大內宿茅草屋雪景 ➔ 豬苗代湖天鵝池
 
-![傳統茅草屋頂積雪景致](https://images.unsplash.com/photo-1493976040374-85c8e12f0c0e?auto=format&fit=crop&w=1200&q=80)
+![日式傳統茅草屋頂積雪真實景致](https://images.unsplash.com/photo-1493976040374-85c8e12f0c0e?auto=format&fit=crop&w=1200&q=80)
 
 * **上午**：搭乘會津鐵道與觀光巴士前往三大茅草屋集落之一的 [大內宿](https://ouchi-juku.com/)，欣賞厚重積雪覆蓋茅草屋頂的童話般景致。
 * **午餐**（大內宿大蔥蕎麥麵推薦）：
@@ -112,7 +112,7 @@
 
 ### Day 6 (2027/02/14 週日)：裏磐梯五色沼雪鞋健行 ➔ 入住星野飯店
 
-![冬日雪地森林健行景觀](https://images.unsplash.com/photo-1551698618-1dfe5d97d256?auto=format&fit=crop&w=1200&q=80)
+![冬日雪地森林健行真實照片](https://images.unsplash.com/photo-1551698618-1dfe5d97d256?auto=format&fit=crop&w=1200&q=80)
 
 * **上午**：（JR Pass Day 5）前往 [裏磐梯五色沼](https://www.urabandai-inf.com/)，穿上雪鞋（Snowshoes）跟隨導覽員走入未被破壞的雪白森林與結冰湖泊。
 * **午餐**（裏磐梯景觀美食推薦）：
@@ -130,7 +130,7 @@
 
 #### 🏔️ 推薦雪場：星野集團 Nekoma Mountain (ネコマ マウンテン)
 
-![滑雪場粉雪與滑雪者視野](https://images.unsplash.com/photo-1551698618-1dfe5d97d256?auto=format&fit=crop&w=1200&q=80)
+![滑雪場真實粉雪與滑雪者現場攝影](https://images.unsplash.com/photo-1551698618-1dfe5d97d256?auto=format&fit=crop&w=1200&q=80)
 
 #### 🗺️ 雪場分佈與路線說明
 * **雪場規模**：連結南區（原 ALTS 磐梯）與北區（原 貓魔滑雪場），擁有多達 **33 條雪道** 與 **13 座纜車**。
@@ -153,7 +153,7 @@
 
 ### Day 12 (2027/02/20 週六)：飯店 Check-out ➔ 仙台車站採買 ➔ 返台
 
-![日本車站與列車](https://images.unsplash.com/photo-1503899036084-c55cdd92da26?auto=format&fit=crop&w=1200&q=80)
+![日本JR車站與電車真實照片](https://images.unsplash.com/photo-1503899036084-c55cdd92da26?auto=format&fit=crop&w=1200&q=80)
 
 * **上午**：
   * **08:30** 於星野飯店辦理 Check-out。
