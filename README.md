@@ -35,6 +35,8 @@
 
 ![日式庭園雪景](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQY30re68NBXvBiJHdIEu9C3ffqzDBmwo7sMunetnZrjA&s=10)
 
+* **景點特色介紹**：
+  * **仙台輪王寺**：擁有幽靜雅致的日式枯山水庭園與莊嚴的三重塔。冬季雪花紛飛覆蓋其上時，展現出極具禪意的北國雪國風情，是沉澱心靈與欣賞傳統庭園造景的絕佳去處。
 * **上午**：08:15 於桃園國際機場 T2 長榮櫃檯辦理報到，搭乘 10:15 出發之 BR118 班機飛往仙台。
 * **午餐**：機上享用長榮精緻航空餐點。
 * **下午**：
@@ -51,11 +53,13 @@
 
 ![雪地狐狸攝影](https://images.unsplash.com/photo-1474511320723-9a56873867b5?auto=format&fit=crop&w=1200&q=80)
 
+* **景點特色介紹**：
+  * **宮城藏王狐狸村**：飼育了超過百隻以上的可愛狐狸，在雪地中自由自在地活動。冬季時分，牠們換上了蓬鬆豐厚的雪白冬毛，模樣極其療癒，是深受國內外旅客喜愛的獨特動物互動景點。
 * **上午**：（啟用 JR Pass Day 1）搭乘新幹線前往白石藏王站，轉乘巴士前往 [宮城藏王狐狸村](http://zao-fox-village.com/)，近距離觀察雪地中百隻換上豐厚冬毛的狐狸。
 * **午餐**（白石名物溫麵推薦）：
   * **選項 A**：[光庵 (Hikarian)](https://tabelog.com/miyagi/A0402/A040202/4000213/)｜**Tabelog 3.55 / Google 4.2★**｜百年古民家建築，手工製造無油滑順的手切白石溫麵。
   * **選項 B**：[白石溫麵庵 芝松](http://www.shiroishi-umen.com/)｜**Tabelog 3.42 / Google 4.1★**｜提供三色沾醬（胡麻、胡桃、醬油）的特色溫麵組合。
-* **下午**：搭乘 JR 列車至山形站，轉乘山交巴士抵達 [藏王溫泉](https://www.zao-spa.or.jp/)，入住溫泉飯店。漫步高湯通溫泉街，感受濃濃硫磺泉煙霧。
+* **下午**：搭乘 JR 列車至山形站，轉乘山交巴士抵達 [藏王溫泉](https://www.zao-spa.or.jp/)，入住溫泉旅館。漫步高湯通溫泉街，感受濃濃硫磺泉煙霧。
 * **晚餐**（藏王溫泉在地名物推薦）：
   * **選項 A**：[Robata 烤肉 (ろばた)](https://tabelog.com/yamagata/A0601/A060101/6000057/)｜**Tabelog 3.51 / Google 4.3★**｜藏王溫泉老字號！必點成吉思汗烤羊肉與山形牛壽喜燒。
   * **選項 B**：[成吉思汗白樺 (しらかば)](https://tabelog.com/yamagata/A0601/A060101/6000212/)｜**Tabelog 3.45 / Google 4.2★**｜當地特調醬汁佐嫩煎羊肉與在地山菜，極具特色。
@@ -65,8 +69,10 @@
 
 ### Day 3 (2027/02/11 週四)：藏王樹冰纜車 ➔ 銀山溫泉大正浪漫夜景
 
-![銀山溫泉木造建築雪景](https://images.unsplash.com/photo-1528164344705-47542687990d?auto=format&fit=crop&w=1200&q=80)
+![藏王樹冰](https://wp-odai.wamazing.com/media/wp-content/uploads/sites/2/2023/09/zaoujuhyou_zao_17.jpg.webp)
 
+* **景點特色介紹**：
+  * **藏王樹冰**：受特殊氣候與針葉林交織而成的世界級奇景，被大自然冰雪雕塑成千奇百怪的模樣，因而贏得「雪怪」的美譽。乘坐纜車俯瞰，壯麗震撼。
 * **上午**：搭乘 [藏王索道纜車](https://zaoropeway.co.jp/) 登上地藏山頂站，俯瞰被稱為「雪怪（Snow Monsters）」的壯麗**藏王樹冰**。
 * **午餐**（山形/纜車觀景美食推薦）：
   * **選項 A**：[山頂餐廳𝟥𝟨𝟢 (Restaurant 360)](https://zaoropeway.co.jp/restaurant/)｜**Google 4.1★**｜位於纜車山頂站，一邊享用熱騰騰的山形芋煮拉麵一邊遠眺樹冰。
@@ -81,8 +87,13 @@
 
 ### Day 4 (2027/02/12 週五)：山形 ➔ 會津若松（雪中鶴城與七日町老街）
 
-![古城天守閣雪景](https://images.unsplash.com/photo-1578637387939-43c525550085?auto=format&fit=crop&w=1200&q=80)
+![雪中鶴城](https://aliciatseng.net/wp-content/uploads/2025/03/20250318-ntm9a.jpg)
 
+![七日町老街](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQQloAsYNW6yByHbnIP6PtJPtClYdKQzvMoOIwimj127LIXyKws0NukZ3Mn&s=10)
+
+* **景點特色介紹**：
+  * **會津若松城（鶴城）**：全日本唯一擁有赤瓦天守閣的名城。當冬季瑞雪紛飛，潔白雪景襯托著典雅的紅色屋瓦與古城牆，散發出極具歷史韻味的莊嚴美感。
+  * **七日町老街**：保留了許多江戶至大正時期的傳統藏造建築與百年老鋪，街道充滿濃厚的懷舊復古風情，適合漫步尋訪在地手工藝、漆器與在地清酒。
 * **上午**：搭乘 JR 仙山線與磐越西線前往福島縣歷史古城 [會津若松](https://www.aizuwakamatsu-kanko.com/)。
 * **午餐**（會津醬汁豬排飯推薦）：
   * **選項 A**：[Tonkatsu Tontei (とん亭)](https://tabelog.com/fukushima/A0702/A070201/7000062/)｜**Tabelog 3.65 / Google 4.3★**｜會津醬汁豬排飯發源老店，特製甜辣醬汁搭配厚切健士豚。
@@ -97,8 +108,10 @@
 
 ### Day 5 (2027/02/13 週六)：大內宿茅草屋雪景 ➔ 豬苗代湖天鵝池
 
-![日式傳統村落茅草屋雪景](https://images.unsplash.com/photo-1493976040374-85c8e12f0c0e?auto=format&fit=crop&w=1200&q=80)
+![大內宿茅草屋雪景與豬苗代湖天鵝池](https://www.settour.com.tw/ss_img/info/location/FKS/S0/FKS0000026/FKS0000026_59319.jpg)
 
+* **景點特色介紹**：
+  * **大內宿與豬苗代湖**：大內宿完整保留了江戶時代宿場町的茅草屋建築群，冬日積雪如童話糖霜般夢幻；隨後前往豬苗代湖，欣賞波光粼粼的湖水與成群遠道而來的越冬白天鵝，畫面優美寧靜。
 * **上午**：搭乘會津鐵道與觀光巴士前往三大茅草屋集落之一的 [大內宿](https://ouchi-juku.com/)，欣賞厚重積雪覆蓋茅草屋頂的童話般景致。
 * **午餐**（大內宿大蔥蕎麥麵推薦）：
   * **選項 A**：[三澤屋 (Misawaya)](https://www.misawaya.jp/)｜**Tabelog 3.62 / Google 4.2★**｜大內宿「大蔥蕎麥麵」創始店！豪邁使用整根大蔥當筷子夾麵享用。
@@ -113,8 +126,10 @@
 
 ### Day 6 (2027/02/14 週日)：裏磐梯五色沼雪鞋健行 ➔ 入住星野飯店
 
-![冬日雪地森林攝影](https://images.unsplash.com/photo-1486496572940-2bb2341fdbdf?auto=format&fit=crop&w=1200&q=80)
+![裏磐梯五色沼雪鞋健行](https://ryokan-book.com/zh-hant/wp-content/uploads/2026/01/MG_5218-1024x683.jpg)
 
+* **景點特色介紹**：
+  * **裏磐梯五色沼**：冬季時白雪覆蓋森林與神祕的火山湖泊。穿上雪鞋進行雪地健行，能深入平時難以足及的純白秘境，欣賞冰封湖面與霧淞交織的絕景。
 * **上午**：（JR Pass Day 5）前往 [裏磐梯五色沼](https://www.urabandai-inf.com/)，穿上雪鞋（Snowshoes）跟隨導覽員走入未被破壞的雪白森林與結冰湖泊。
 * **午餐**（裏磐梯景觀美食推薦）：
   * **選項 A**：[裏磐梯 休閒中心 湖畔餐廳](https://www.urabandai-inf.com/)｜**Tabelog 3.38 / Google 4.1★**｜熱氣騰騰的喜多方醬油拉麵與山菜天婦羅蕎麥麵。
@@ -131,30 +146,35 @@
 
 #### 🏔️ 推薦雪場：星野集團 Nekoma Mountain (ネコマ マウンテン)
 
-![日本滑雪場雪山景色](https://images.unsplash.com/photo-1551698618-1dfe5d97d256?auto=format&fit=crop&w=1200&q=80)
+![Nekoma Mountain滑雪場景色](https://japan-skiguide.com/realimg_report/1129/parts_54023.jpg)
 
-#### 🗺️ 雪場分佈與路線說明
-* **雪場規模**：連結南區（原 ALTS 磐梯）與北區（原 貓魔滑雪場），擁有多達 **33 條雪道** 與 **13 座纜車**。
-* **雪道難易度分佈**：
-  * **🟢 綠線（初學者道，約 35%）**：「初級廣場」與「與佐衛門雪道」，坡度平緩寬廣。
-  * **🔴 紅線（中級者道，約 40%）**：「Grand Valley」與「Nyandain 纜車連通道」，可俯瞰豬苗代湖。
-  * **⚫ 黑線（高級者道，約 25%）**：「Micro Fine」與未壓雪「Deep Powder Zone」，極微細粉雪著稱。
+![Nekoma Mountain雪道風景](https://d2r4787i3zn8dn.cloudfront.net/z9v2z5uxkqpee5o7md3dhd7af8l8)
 
-#### ⛷️ 滑雪期間午餐與晚餐精選推薦
-* **午餐選項**（雪場內特色餐廳）：
-  * **選項 A**：[南區 Bandai Center Cafe](https://www.nekoma.co.jp/)｜**Google 4.2★**｜滑雪客必吃！炙燒起司黑毛牛肉堡與大份量豬排咖哩飯。
-  * **選項 B**：[北區 貓魔食堂 (Nekoma Shokudo)](https://www.nekoma.co.jp/)｜**Google 4.3★**｜極至粉雪區首選！提供超濃郁會津鹽味拉麵與特製黑味噌蒜味拉麵。
-* **晚餐選項**（星野飯店美饌與溫泉小吃）：
-  * **選項 A**：[星野「會津食文化」日式會席饗宴](https://hoshinoresorts.com/zh_tw/hotels/bandai/)｜**Google 4.5★**｜採用福島高品質黑毛和牛與山菜，搭配專屬唎酒師推薦清酒。
-  * **選項 B**：[飯店 Lounge 冰上酒吧與會津蕎麥煎餅](https://hoshinoresorts.com/zh_tw/hotels/bandai/)｜**Google 4.3★**｜滑雪後的放鬆角落，享用熱甘酒、炙烤手工仙貝與在地精釀啤酒。
+* **景點特色介紹**：
+  * **Nekoma Mountain 滑雪場**：結合南區與北區的大型頂級滑雪度假村，擁有極為優質的細緻粉雪與豐富多變的滑雪道。在此不僅能盡情享受暢快滑雪的樂趣，還能遠眺壯麗的豬苗代湖景致。
+* **🗺️ 雪場分佈與路線說明**
+  * **雪場規模**：連結南區（原 ALTS 磐梯）與北區（原 貓魔滑雪場），擁有多達 **33 條雪道** 與 **13 座纜車**。
+  * **雪道難易度分佈**：
+    * **🟢 綠線（初學者道，約 35%）**：「初級廣場」與「與佐衛門雪道」，坡度平緩寬廣。
+    * **🔴 紅線（中級者道，約 40%）**：「Grand Valley」與「Nyandain 纜車連通道」，可俯瞰豬苗代湖。
+    * **⚫ 黑線（高級者道，約 25%）**：「Micro Fine」與未壓雪「Deep Powder Zone」，極微細粉雪著稱。
+* **⛷️ 滑雪期間午餐與晚餐精選推薦**
+  * **午餐選項**（雪場內特色餐廳）：
+    * **選項 A**：[南區 Bandai Center Cafe](https://www.nekoma.co.jp/)｜**Google 4.2★**｜滑雪客必吃！炙燒起司黑毛牛肉堡與大份量豬排咖哩飯。
+    * **選項 B**：[北區 貓魔食堂 (Nekoma Shokudo)](https://www.nekoma.co.jp/)｜**Google 4.3★**｜極至粉雪區首選！提供超濃郁會津鹽味拉麵與特製黑味噌蒜味拉麵。
+  * **晚餐選項**（星野飯店美饌與溫泉小吃）：
+    * **選項 A**：[星野「會津食文化」日式會席饗宴](https://hoshinoresorts.com/zh_tw/hotels/bandai/)｜**Google 4.5★**｜採用福島高品質黑毛和牛與山菜，搭配專屬唎酒師推薦清酒。
+    * **選項 B**：[飯店 Lounge 冰上酒吧與會津蕎麥煎餅](https://hoshinoresorts.com/zh_tw/hotels/bandai/)｜**Google 4.3★**｜滑雪後的放鬆角落，享用熱甘酒、炙烤手工仙貝與在地精釀啤酒。
 * **住宿**：星野集團 磐梯山溫泉飯店（連續 5 天 4 夜）
 
 ---
 
 ### Day 12 (2027/02/20 週六)：星野退房與彈性行程二選一
 
-![日本文青咖啡或海景攝影](https://images.unsplash.com/photo-1501339847302-ac426a4a7cbb?auto=format&fit=crop&w=1200&q=80)
+![仙台本町小眾選品](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSdRSz0b04RAZN8ZkJHliKUsrcXCRkmGYW0LM8Qed3oTz0FTq4AtyW_4cY&s=10)
 
+* **景點特色介紹**：
+  * **仙台本町小眾選品區**：被譽為仙台代官山的質感街區，街道安靜且充滿林蔭。這裡聚集了許多極具品味的小眾獨立服飾選品店、質感雜貨與特色咖啡廳，是喜愛深度漫步與尋找獨特好物的好去處。
 * **上午**：
   * **08:30** 於星野飯店辦理 Check-out。
   * **09:15** 搭乘飯店免費預約接駁車前往 JR 豬苗代站，搭乘 JR 磐越西線至郡山站，轉乘東北新幹線前往仙台（約 11:45 抵達）。
@@ -175,8 +195,10 @@
 
 ### Day 13 (2027/02/21 週日)：漫步咖啡與最後採買 ➔ 返台
 
-![日本車站月台攝影](https://images.unsplash.com/photo-1503899036084-c55cdd92da26?auto=format&fit=crop&w=1200&q=80)
+![松島海岸絕景](https://www.promotions.com.tw/jreast/images/img_content_1_14.jpg)
 
+* **景點特色介紹**：
+  * **松島海岸**：日本三景之一，由上百座奇岩小島點綴在蔚藍海湾中。冬季海景壯闊冷冽，群島披上薄雪更顯清幽詩意，是結束旅程前令人流連忘返的風光。
 * **上午**：
   * 若住仙台市區：早晨前往 [Blue Bottle Coffee 仙台](https://bluebottlecoffee.jp/) 或在地職人咖啡館享用慢步調早午餐。
   * 若住松島海岸：享用飯店豐盛早餐後，漫步參觀 [瑞嚴寺](https://www.zuiganji.or.jp/) 或五大堂，隨後搭車返回仙台車站。
