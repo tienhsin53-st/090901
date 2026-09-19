@@ -12,7 +12,7 @@
 ---
 
 ## 📅 每日行程摘要總表
-
+| Google My Map: https://www.google.com/maps/d/u/0/edit?mid=1bjPAUoLeXOLNT-1k4gz_XerFMRfLexs&usp=sharing
 | 日期 | 天數 | 主要行程景點 | 住宿地點 |
 | :--- | :--- | :--- | :--- |
 | **02/09 (二)** | Day 1 | 長榮抵達 ➔ 仙台市區輕鬆散策 ➔ **牛舌名店「閣」** 晚餐 | 仙台市區飯店 (連泊1) |
